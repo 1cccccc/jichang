@@ -13,4 +13,3 @@ jichang
 | 三毛机场 | https://xn--ehqx7tcnnope.shop/#/register?code=dpiaJEU1 | 5/月1200G                                     | 3/月5G，9/月100G                   | 不限     | 未使用过     |
 | nanoPort | https://v3.nanoport.xyz/#/register?code=jCa7kjZ2       | 2/1999G                                       | 20/1999G                           | 3        | 未使用过     |
 | 一元机场 | https://xn--4gq62f52gdss.xyz/#/register?code=HaYLJXZS  | 5/400G                                        | 12/500G                            | 不限     | 未使用过     |
-| 良心机场 | https://xn--mes91r2ng7p4a.com/#/register?code=Hr6tkij4 | 无                                            | 7/月1000G                          | 不限     | 快           |
