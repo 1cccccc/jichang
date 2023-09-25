@@ -12,4 +12,4 @@
 | 三分机场 | https://xn--ehq00hgtfdmt.xyz/#/register?code=AKaS4xMc  | 5/月5000G                                     | 9.5/月200G                         | 不限     | 未使用过     |
 | 三毛机场 | https://xn--ehqx7tcnnope.shop/#/register?code=dpiaJEU1 | 5/月1200G                                     | 3/月5G，9/月100G                   | 不限     | 未使用过     |
 | nanoPort | https://v3.nanoport.xyz/#/register?code=jCa7kjZ2       | 2/1999G                                       | 20/1999G                           | 3        | 未使用过     |
-| 一元机场 | https://xn--4gq62f52gdss.com/#/register?code=HaYLJXZS  | 5/400G                                        | 12/500G                            | 不限     | 未使用过     |
+| 一元机场 | https://xn--4gq62f52gdss.xyz/#/register?code=HaYLJXZS  | 5/400G                                        | 12/500G                            | 不限     | 未使用过     |
