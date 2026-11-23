@@ -139,3 +139,10 @@
 
 ![image-20260905145050456](README.assets/image-20260905145050456.png)
 
+---
+
+## 月兔VPN（Tsuki）
+[直达链接](https://buddahs-temptation.win/tsuki)
+
+![tsuki-price-2026-11-20](README.assets/tsuki-price-2026-11-20.png)
+
